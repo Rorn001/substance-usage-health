@@ -1,1 +1,1 @@
-# Correlation between substance usage and physical/mental health
+# Correlational study on substance usage and physical/mental health
